@@ -1,0 +1,1 @@
+Excelente curso, até agora um dos melhores professores que já tive, ótima didática.
